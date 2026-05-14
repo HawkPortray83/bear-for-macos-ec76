@@ -1,4 +1,4 @@
-#  
+#  Bear for macOS professional Addon: database templates & AI assistant offers the most advanced Bear for macOS addon, with database templates and AI assistant. Ideal for
 
 
 
